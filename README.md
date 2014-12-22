@@ -35,8 +35,99 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A true and briefe relation of the famous seige of Breda beseiged, and taken in vnder the able and vi
+
+1. TO
+THE RIGHT HONORABLE, AND MOST
+Noble Lord, HENRY LORD RICH of KENSINGTON,
+Earle of HOLLAND, Captaine of his Majesties Guard, and
+Gentlemen of the Bed-Chamber, Chancellor of the Vniversity of
+CAMBRIDGE, Knight of the most noble Order of the Garter, and
+one of his Majesties thost Honourable Privie Councill, &c.
+
+1. AN INFORMATION TO THE READER OF the State of BREDA Formerly.
+
 #####Body#####
+
+1. A
+TRVE AND A BRIEFE
+RELATION
+Of the famous Seige
+OF
+BREDA.
+
+1. THE ARTICLES OF COMPOSITION,
+Granted by this highnesse the Prince of Orange to the Gouernour
+GOMAR FOVRDINE Captaines, & Souldiers within the Towne of
+BREDA.
+
+1. THE COPIE OF THE ARTICLES AND
+Demands propounded by the Spirituality, the Drossard
+Schout, Burgomasters, Aldermen, and the Councill of the
+citty of BREDA, to his highnesse my Lord the Prince of
+Orange, Lord and Baron of BREDA with his highnesse Answere
+thereunto.
+
+    _ I. Demand.
+
+    _ I. Answere.
+
+    _ II. Demand.
+
+    _ II. Answere.
+
+    _ III. Demaund.
+
+    _ III. Answere.
+
+    _ IV. Demaund.
+
+    _ IV. Answere.
+
+    _ V. Demaund.
+
+    _ V. Answere.
+
+    _ VI. Demaund.
+
+    _ The VI. Answere.
+
+    _ VII. Demaund.
+
+    _ VII. Answere.
+
+    _ VIII. Demaund.
+
+    _ The VIII. Answer.
+
+    _ The IX. Demand.
+
+    _ The IX Answer.
+
+    _ The X. Demand.
+
+    _ The X Answer.
+
+    _ The XI. Demand.
+
+    _ The XI. Answre.
+
+    _ XII. Demaund.
+
+    _ XII. Answer
+
+    _ XIII. Demaund
+
+    _ XIII. Answere.
+
+    _ XIV. Demaund.
+
+    _ XIV. Answere.
+
+1. THE ENNEMIES DEPARTVRE AND MARCH OVT of BREDA on Satterday the 10 of October 1637. New Stile.
+
+1. A true
+Liste of the Officers, Gentlemen, and Souldiers Slaine, and hurt before
+the Seige of BREDA, 1637.
 
 **Types of content**
 
